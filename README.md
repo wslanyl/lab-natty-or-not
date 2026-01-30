@@ -13,7 +13,7 @@ Este podcast de 2 minutos e meio oferece um passeio rápido, mas profundo, pelo 
 ## 🚀 Resultados
 O episódio é uma introdução acessível e estimulante ao futuro das IAs Generativas, ideal para quem busca uma compreensão rápida do assunto e entendimento ao que trará no futuro do mundo.
 
-[https://drive.google.com/file/d/15QADQJjPl4C5VcXyZyVhsbur_kUY79Rm/view?usp=sharing]()
+LINK DO PODCAST: **[(https://drive.google.com/file/d/15QADQJjPl4C5VcXyZyVhsbur_kUY79Rm/view?usp=sharing)]**
 
 ## 💭 Reflexão
 O projeto destacou: A inteligência artificial não substitui o ser humano — ela amplia o que somos quando usada com consciência e propósito.
